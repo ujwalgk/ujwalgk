@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @ujwalgk on insta
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i studie computers in school 
+- ⚡ Fun fact: i never went to tutions,
 
 <!---
 ujwalgk/ujwalgk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
